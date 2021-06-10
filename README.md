@@ -1,10 +1,10 @@
 ### Informations
 * Terima Kasih Kepada !!
-* **Mr.Risky**
-* **Hamzah**
-* **AnggaXD**
-* **Yayan-XD**
-* **Dapunta**
+* ![**Mr.Risky**](https://github.com/Dumai-991)
+* ![**Hamzah**](https://github.com/Hamzahash)
+* ![**AnggaXD**](https://github.com/anggaxd/anggaxd)
+* ![**Yayan-XD**](https://github.com/Yayan-XD)
+* ![**Dapunta**](https://github.com/Dapunta)
 
 ### Sosial
 * [FACEBOOK](https://m.facebook.com/llovexnxx)
@@ -13,10 +13,10 @@
 * [WHATSAPPGRUP](xnxx.com)
 
 ### Donasi
-* **Dana **```: 083143565470```
-* **Ovo **```: 083143565470```
-* **Pulsa **```: 083143565470```
-* **Gopay **```: 083143565470```
+* **Dana ** ```: 083143565470```
+* **Ovo ** ```: 083143565470```
+* **Pulsa ** ```: 083143565470```
+* **Gopay ** ```: 083143565470```
 
 ##### Terima Kasih Telah Donasi Ngab :)
 
