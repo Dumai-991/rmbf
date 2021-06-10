@@ -1,10 +1,10 @@
 ### Informations
-* Terima Kasih Kepada !!
-* ![**Mr.Risky**](https://github.com/Dumai-991)
-* ![**Hamzah**](https://github.com/Hamzahash)
-* ![**AnggaXD**](https://github.com/anggaxd/anggaxd)
-* ![**Yayan-XD**](https://github.com/Yayan-XD)
-* ![**Dapunta**](https://github.com/Dapunta)
+* _Terima Kasih Kepada !!_
+* [**Mr.Risky**](https://github.com/Dumai-991)
+* [**Hamzah**](https://github.com/Hamzahash)
+* [**AnggaXD**](https://github.com/anggaxd/anggaxd)
+* [**Yayan-XD**](https://github.com/Yayan-XD)
+* [**Dapunta**](https://github.com/Dapunta)
 
 ### Sosial
 * [FACEBOOK](https://m.facebook.com/llovexnxx)
